@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning  Raman microspectroscopy imaging of wood cell walls
 - 💞️ I’m looking to collaborate on projects involving wood science/ biomechanics of human body
 - 📫 How to reach me 
-+ 45 31121020
++ 0045 31121020
 andreaponzecchi95@gmail.com
 sqj232@ign.ku.dk
 
